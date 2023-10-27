@@ -1,1 +1,0 @@
-# ajithkumar_photopolio
